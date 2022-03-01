@@ -1,1 +1,1 @@
-# Porjecto-Informatica-2022
+# Projecto-Informatica-2022
